@@ -63,7 +63,7 @@ Here's a curated list of projects I’ve completed as part of my cybersecurity l
 
 ## 📫 Get in Touch
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/olanrewaju-adako-84a192361?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)  
+- 💼 [LinkedIn](http://linkedin.com/in/olanrewaju-adako-bb5031360)
 - ✉️ Email: adakoolanrewaju27@gmail.com  
 - 🌐 Portfolio Site (coming soon!)
 
